@@ -81,3 +81,8 @@ If you're also exploring AI, building projects, or learning in public, feel free
 ### Build. Learn. Share. Repeat.
 
 **Day 1/60 — Challenge Accepted 🚀**
+
+
+<img width="1024" height="1536" alt="day1" src="https://github.com/user-attachments/assets/10b717c6-501a-42bc-97b1-4293ff6f86c8" />
+
+
